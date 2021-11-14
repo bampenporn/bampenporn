@@ -9,7 +9,7 @@
 ![bampenporn so ngoen](https://sv1.picz.in.th/images/2021/11/15/uItdMg.jpg)
 
 ## Get in touch
-[Instagram])(https://www.instagram.com/aonny_bb/)<br>
+[Instagram](https://www.instagram.com/aonny_bb/)<br>
 
 ## Quotes
 >" ง่วงก็นอน เหนื่อยก็ร้องไห้ อย่าฝืน "
