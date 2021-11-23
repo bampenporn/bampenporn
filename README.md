@@ -1,8 +1,11 @@
 # Hi I'm Bampenporn So Ngoen, Welcome to my Github profile.
 
 👋 Hi, I’m bampenporn so ngoen. 
+
 👋 you can call me Aon.
+
 👀 I’m interested in Boardgame.
+
 🌱 I'm currently working on my boardgames.
 🌱 I'm currently learning Python SQL codepost and GitHub.
 
