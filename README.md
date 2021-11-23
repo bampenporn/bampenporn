@@ -23,7 +23,7 @@
 #### the winner of "ออกแบบเกม ออกแบบสังคม" recived a plaque and prize money worth 20 K. 
 
 ![bampenporn so ngoen](https://sv1.picz.in.th/images/2021/11/24/631BcJ.png)
-![bampenporn so ngoen](https://sv1.picz.in.th/images/2021/11/24/631N79.png)
+![bampenporn so ngoen](https://sv1.picz.in.th/images/2021/11/24/631hFf.jpg)
 
 ## Activity
 
